@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **rganguly301200@gmail.com**
 
-- ⚡ Fun fact **I think I am good at coding, but bugs had other plans.**
+- ⚡ Fun fact **I thought I was good at coding, but bugs had other plans.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
